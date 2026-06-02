@@ -1,1 +1,3 @@
 # SME2_FINAL_PROJECT
+
+ㅇㅇㅁㄴㅇ
