@@ -1,3 +1,0 @@
-# SME2_FINAL_PROJECT
-
-ㅇㅇ
